@@ -8,4 +8,3 @@
 - 📫 How to reach me: ... [Twitter Account](http://twitter.com/halfsaab)
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ... I'm half finish!
--->
