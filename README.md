@@ -4,7 +4,7 @@
 - 🌱 I’m currently learning ... Dart and .Net
 - 👯 I’m looking to collaborate on ... Java 
 - 🤔 I’m looking for help with ... AWS
-- 💬 Ask me about ... Anything in life
+- 💬 Ask me about ... Anything! Let's chat!
 - 📫 How to reach me: ... [Twitter Account](http://twitter.com/halfsaab)
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ... I'm half finish!
