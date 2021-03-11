@@ -1,7 +1,5 @@
 ### Here is what I'm working on! 👋
 
-Here are some ideas to get you started:
-
 - 🔭 I’m currently working on ... a Flutter app
 - 🌱 I’m currently learning ... Dart and .Net
 - 👯 I’m looking to collaborate on ... Java 
