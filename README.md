@@ -7,5 +7,5 @@
 - 💬 Ask me about ... Anything in life
 - 📫 How to reach me: ... [Twitter Account](http://twitter.com/halfsaab)
 - 😄 Pronouns: ... He/Him
-- ⚡ Fun fact: ... I am half finish!!
+- ⚡ Fun fact: ... I'm half finish!
 -->
