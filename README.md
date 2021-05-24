@@ -7,4 +7,4 @@
 - 💬 Ask me about ... Anything! Let's chat!
 - 📫 How to reach me: ... [Twitter Account](http://twitter.com/halfsaab)
 - 😄 Pronouns: ... He/Him
-- ⚡ Fun fact: ... I'm half finish!
+- ⚡ Fun fact: ... I'm halfway done with my homework!
